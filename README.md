@@ -1,1 +1,1 @@
-# tiktok-livestream-interest
+# fungi-tech
